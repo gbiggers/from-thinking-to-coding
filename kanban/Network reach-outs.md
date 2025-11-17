@@ -1,0 +1,5 @@
+- John from GA class (Kaiser product coach)
+- Jessie Slocum (Athena)
+- Sean Cantarella (recruiter at Park Square)
+- Jasmin from GA class
+- Samantha Senn from GA class
